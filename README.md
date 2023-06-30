@@ -2,4 +2,4 @@
 
 
 Click to visit our site
-http://www.dotzenshop.com/
+https://israfilmolla469.github.io/dotzenshop.github.io/
